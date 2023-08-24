@@ -1,0 +1,1 @@
+This is a repo for my neocities page just to have it here lmao
